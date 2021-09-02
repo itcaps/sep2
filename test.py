@@ -1,3 +1,0 @@
-new lune
-dadsad
-asdasd
